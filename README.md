@@ -1,0 +1,2 @@
+# emoji-clicker-global
+seilaxxzxzxzxzxxzxz
